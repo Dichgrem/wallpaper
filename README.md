@@ -1,2 +1,0 @@
-# wallpaper
-Some nice picture
